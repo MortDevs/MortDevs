@@ -1,5 +1,5 @@
 # 💫 About Me:
-> mort codes<br>> you go r1<br>Ezkatka.
+> Just your average developer.
 
 
 ## 🌐 Socials:
